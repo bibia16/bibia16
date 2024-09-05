@@ -1,0 +1,5 @@
+- 👋 Oie, meu nome é Bianca Tornquist
+- 👀 Estou estudando no alura 
+- 🌱 Uso essa plataforma nas aulas de PC
+- 💞️ Pretendo criar projetos aqui
+- meu apelido é bibia.
